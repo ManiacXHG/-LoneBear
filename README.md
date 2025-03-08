@@ -1,4 +1,4 @@
-                                                                                                                             $LONEBEAR ON ZORA
+                                                      $LONEBEAR ON ZORA
 
 Hodl, the first bear holder, is like a solitary bear guarding its cave in the midst of a harsh winter. While the world outside is cold and unpredictable, he remains still, resolute, and unmoved, holding his ground with quiet strength, knowing that the storm will eventually pass.
 
